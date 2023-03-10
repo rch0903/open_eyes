@@ -36,6 +36,9 @@ Firefox：https://www.lanzouv.com/b0ufrtlc
 
 其它：https://www.123pan.com/s/7bzA-pQpOd
 
+##### 油小猴
+https://www.youxiaohou.com/
+
 
 ### Android
 
