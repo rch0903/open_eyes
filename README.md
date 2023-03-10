@@ -27,6 +27,15 @@ https://xiaomianao.lanzoum.com/izUQk05dnxje
 ##### 波澜播放器电脑版
 https://www.123pan.com/s/fajA-evqQh
 
+##### chat-gpt定制
+Chrome：https://www.lanzouv.com/b0ufru1i
+
+Edge：https://www.123pan.com/s/7bzA-wzxOd
+
+Firefox：https://www.lanzouv.com/b0ufrtlc
+
+其它：https://www.123pan.com/s/7bzA-pQpOd
+
 
 ### Android
 
