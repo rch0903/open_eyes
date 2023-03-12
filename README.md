@@ -39,6 +39,9 @@ Firefox：https://www.lanzouv.com/b0ufrtlc
 ##### 油小猴
 https://www.youxiaohou.com/
 
+##### 网盘直链下载助手
+https://greasyfork.org/zh-CN/scripts/436446-%E7%BD%91%E7%9B%98%E7%9B%B4%E9%93%BE%E4%B8%8B%E8%BD%BD%E5%8A%A9%E6%89%8B
+
 
 ### Android
 
