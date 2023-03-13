@@ -56,3 +56,6 @@ https://xiaomianao.lanzoum.com/iYOin0nkx7ti@import=js:eval(base64Decode('KAooKSA
 ##### 自动跳过合集
 https://xiaomianao.lanzoum.com/b012m1eja  密码:881x
 
+##### TTS
+https://www.123pan.com/s/fajA-RAqQh.html
+
