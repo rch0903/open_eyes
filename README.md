@@ -62,3 +62,6 @@ https://xiaomianao.lanzoum.com/b012m1eja  密码:881x
 ##### TTS
 https://www.123pan.com/s/fajA-RAqQh.html
 
+##### 音乐合集
+https://www.123pan.com/s/fajA-1BqQh.html
+
